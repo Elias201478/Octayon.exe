@@ -3,3 +3,4 @@ finally there is NO AI in this malware. also is not skidded. 5 GDI Payloads. I'l
 crazy malware i ever seen btw.
 
 no more AI this time
+IT TOKE ME 5 DAYS TO MAKE 10 PAYLOADS.
